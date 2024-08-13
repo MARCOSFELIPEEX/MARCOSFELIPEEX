@@ -5,4 +5,4 @@ SOU ALUNO DA PROFESSORA : VERIDIANA,
 GOSTO MUITO DO ALURA
 
 
-![]()https://media1.tenor.com/m/Fgr9xqtnBOMAAAAd/six-paths-asura-mode.gif
+![](https://media1.tenor.com/m/Fgr9xqtnBOMAAAAd/six-paths-asura-mode.gif)
